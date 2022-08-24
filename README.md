@@ -1,0 +1,2 @@
+# ideas
+ stupid little ideas.
